@@ -6,7 +6,7 @@ He wasn't quite so lucky.
 
 Or maybe, luck has nothing to do with it.
 
-The universe with teaming with fluctuating energetic potentials.
+The universe is teaming with fluctuating energetic potentials.
 
 Perhaps a "dead" cat exist in another universe.
 
